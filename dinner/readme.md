@@ -1,4 +1,4 @@
-# Replace with recipe name
+Butter Chicken
 
 ## Servings: 
 
