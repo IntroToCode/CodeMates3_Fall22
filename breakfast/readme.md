@@ -26,9 +26,10 @@
 
 ## Steps for preparation:
 
-1. Add almond milk, chia seeds, maple syrup, cocoa powder, vanilla and salt into a high powered blender. Start at a low setting on your blender (variable on the Vitamix) and progress to high. Blend until chia seeds are almost undetectable and mixture is smooth, scraping down the sides of the blender with a spatula if needed. 
-
-2. Chia pudding should be thick and ready to enjoy so you can top with your favorite toppings and dive in or if you like your chocolate pudding cold, transfer to a resealable container, cover and refrigerate for 3-4 hours to chill before eating.
+1. Add almond milk, chia seeds, maple syrup, cocoa powder, vanilla and salt into a high powered blender
+2. Start at a low setting on your blender (variable on the Vitamix) and progress to high
+3. Blend until chia seeds are almost undetectable and mixture is smooth, scraping down the sides of the blender with a spatula if needed
+4. Top with your favorite toppings and dive in or if you like your chocolate pudding cold, transfer to a resealable container, cover and refrigerate for 3-4 hours to chill before eating.
 
 ### Notes:
 If you do not blend the chia seeds it will have a less smooth and creamy texture, more similar to regular chia seed pudding.
