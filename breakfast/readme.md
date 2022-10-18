@@ -7,6 +7,8 @@
   3 tasty servings!
 
 ## Time to prepare: 
+- Prep Time: 10 minutes
+- Refrigerate Time: 3-4 hours
 
 ## Ingredients:
 -   1 cup unsweetened plant-based milk
