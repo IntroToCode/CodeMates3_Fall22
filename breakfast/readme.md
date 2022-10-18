@@ -7,6 +7,8 @@
   3 tasty servings!
 
 ## Time to prepare: 
+- Prep Time: 10 minutes
+- Refrigerate Time: 3-4 hours
 
 ## Ingredients:
 -   1 cup unsweetened plant-based milk
@@ -38,3 +40,4 @@ You can also use stevia, honey, or monkfruit sweetener as alternatives to maple 
 - Lily Peng @penglb
 - Felipe Bosselin @fbosselin
 - Hoang To @tojtt
+

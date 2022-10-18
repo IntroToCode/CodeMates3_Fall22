@@ -11,7 +11,12 @@ This recipe makes four servings
 
 
 ## Equipment needed:
-
+- Measuring spoons
+- Measuring cups
+- Large bowl
+- Stock pot
+- Wooden spoon
+- Plates and silverware
 
 ## Steps for preparation:
 
