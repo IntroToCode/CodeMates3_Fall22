@@ -1,9 +1,6 @@
-
 # Chocolate Chia Seed Pudding
 
-
 ## Servings: 
-
   3 tasty servings!
 
 ## Time to prepare: 
