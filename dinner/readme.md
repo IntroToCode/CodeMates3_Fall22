@@ -8,7 +8,24 @@ This recipe makes four servings
 - Cook Time: 25 minutes
 
 ## Ingredients:
-
+- 2 lb boneless, skinless chicken breast, cubed
+- salt, to taste
+- pepper, to taste
+- 2 teaspoons chili powder, divided
+- ½ teaspoon turmeric
+- 6 tablespoons butter, divided
+- 1 ½ cups yellow onion, diced
+- 3 teaspoons garam masala
+- 1 teaspoon cumin
+- 1 teaspoon cayenne pepper
+- 1 tablespoon ginger, grated
+- 3 cloves garlic, minced
+- 1 cinnamon, 3 inch (8 cm) stick
+- 14 oz tomato sauce
+- 1 cup water
+- 1 cup heavy cream
+- rice, for serving
+- fresh cilantro, chopped for garnish
 
 ## Equipment needed:
 - Measuring spoons
@@ -33,7 +50,7 @@ This recipe makes four servings
 
 ### Notes:
 
-
+Be careful around a hot stove!
 
 ### Codemates #
 - Connor Haley @chaley17
